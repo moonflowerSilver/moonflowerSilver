@@ -1,16 +1,22 @@
-## Hi there 👋
+<p align="center">
+ hi helloo
+don't be afraid to int ^_^
 
-<!--
-**moonflowerSilver/moonflowerSilver** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+                                                        "It's NO USE!"
 
-Here are some ideas to get you started:
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+<p align="center">
+❥・・--------‪༚༅༚˳ . ୨୧ . ˳༚༅༚-------- ・・❥
+
+</p>
+
+<p align="center">
+    <img width="140" src="https://komarev.com/ghpvc/?username=moonflowerSilver&color=d4dbd5" alt="views count">
+</p>
+
+<p align="center">
+    <img width="400" src="https://media1.tenor.com/m/zElQ6qy_RDoAAAAC/silver-the-hedgehog-sonic-2006.gif" alt="silver">
+</p>
+
+<p align="center">
+❥・・ --------༚༅༚˳ . ୨୧ . ˳༚༅༚-------- ・・❥
