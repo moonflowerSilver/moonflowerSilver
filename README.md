@@ -23,3 +23,6 @@ don't be afraid to int ^_^
 
 <p align="center">
 https://moonflowersilver.straw.page
+
+<p align="center">
+https://discord.gg/UaPvjC4hFj
