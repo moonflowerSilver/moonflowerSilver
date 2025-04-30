@@ -1,6 +1,6 @@
 <p align="center">
  hi helloo
-don't be afraid to int ^_^
+don't be afraid to int ^_^ feel free to leave smth on my strawpage!
 
                                                            "It's NO USE!"
 
