@@ -2,6 +2,9 @@
  hi helloo
 don't be afraid to int ^_^ feel free to leave smth on my strawpage!
 
+<p align="center">
+https://moonflowersilver.straw.page
+
                                                            "It's NO USE!"
 
 
@@ -21,8 +24,6 @@ don't be afraid to int ^_^ feel free to leave smth on my strawpage!
 <p align="center">
 ❥・・ --------༚༅༚˳ . ୨୧ . ˳༚༅༚-------- ・・❥
 
-<p align="center">
-https://moonflowersilver.straw.page
 
 <p align="center">
 https://discord.gg/UaPvjC4hFj
