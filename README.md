@@ -18,7 +18,7 @@ https://moonflowersilver.straw.page
 </p>
 
 <p align="center">
-    <img width="400" src="https://media1.tenor.com/m/zElQ6qy_RDoAAAAC/silver-the-hedgehog-sonic-2006.gif" alt="silver">
+    <img width="400" src="https://media1.tenor.com/m/bhDBGQAp7GEAAAAC/silver-the-hedgehog-sonic.gif" alt="silver">
 </p>
 
 <p align="center">
