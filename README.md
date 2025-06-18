@@ -1,35 +1,33 @@
 <p align="center">
- hi helloo
-don't be afraid to int ^_^ feel free to leave smth on my strawpage!
+ hello
 
 <p align="center">
---------
-
-<p align="center">
-Silver fictkin
+everything important is in my strawpage
 
 <p align="center">
 https://moonflowersilver.straw.page
 
-                                                           "It's NO USE!"
+                                        “ ​ᴡʜᴇɴ ʏᴏᴜ ʜᴀᴠᴇ ꜱᴜꜰꜰᴇʀᴇᴅ ᴜɴᴅᴇʀ ᴛʜᴇ ꜱᴜɴ, ʏᴏᴜ ᴄʀᴀᴠᴇ ᴛʜᴇ ᴅᴀʀᴋ. ”
 
 
 <p align="center">
-❥・・--------‪༚༅༚˳ . ୨୧ . ˳༚༅༚-------- ・・❥
+———————————————————————————————————————————————
 
 </p>
 
 <p align="center">
-    <img width="140" src="https://komarev.com/ghpvc/?username=moonflowerSilver&color=d4dbd5" alt="views count">
+    <img width="140" src="https://komarev.com/ghpvc/?username=moonflowerSilver&color=32cd32" alt="views count">
 </p>
 
 <p align="center">
-    <img width="400" src="https://media1.tenor.com/m/bhDBGQAp7GEAAAAC/silver-the-hedgehog-sonic.gif" alt="silver">
+    <img width="400" src="https://media1.tenor.com/m/CULpgFDPaKkAAAAd/loki.gif" alt="gif1">
 </p>
 
 <p align="center">
-❥・・ --------༚༅༚˳ . ୨୧ . ˳༚༅༚-------- ・・❥
-
+———————————————————————————————————————————————
 
 <p align="center">
-https://discord.gg/UaPvjC4hFj
+Loki/Silver
+
+<p align="center">
+She/Him (He pref)
