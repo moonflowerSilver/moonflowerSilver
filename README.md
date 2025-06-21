@@ -27,7 +27,7 @@ https://moonflowersilver.straw.page
 ———————————————————————————————————————————————
 
 <p align="center">
-Loki/Silver
+Raine/Loki/Silver
 
 <p align="center">
 She/Him (He pref)
