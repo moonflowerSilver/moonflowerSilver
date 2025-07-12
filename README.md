@@ -27,7 +27,7 @@ https://moonflowersilver.straw.page
 ———————————————————————————————————————————————
 
 <p align="center">
-Raine/Loki/Silver
+Atlas, 78_X / 78, Indigo
 
 <p align="center">
 She/Him (He pref)
