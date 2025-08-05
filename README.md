@@ -52,7 +52,7 @@ $\color{hsl(0,100%,50%)}{\textsf{Do NOT whisper me if you just want supporter be
 $\small{\textsf{ }}$
 ———————————————————————————————————————————————————————————————
 
-        𝐌𝐨𝐧𝐚𝐜𝐡𝐨𝐩𝐬𝐢𝐬 | ᴛʜᴇ ᴘᴇʀꜱɪꜱᴛᴇɴᴛ ꜰᴇᴇʟɪɴɢ ᴏꜰ ʙᴇɪɴɢ ᴏᴜᴛ ᴏꜰ ᴘʟᴀᴄᴇ, ꜱɪᴍɪʟᴀʀ ᴛᴏ ꜰᴇᴇʟɪɴɢ ʟɪᴋᴇ ᴀ ᴍɪꜱꜰɪᴛ ɪɴ ᴀ ᴘᴀʀᴛɪᴄᴜʟᴀʀ ᴇɴᴠɪʀᴏɴᴍᴇɴᴛ.
+       𝐌𝐨𝐧𝐚𝐜𝐡𝐨𝐩𝐬𝐢𝐬 | ᴛʜᴇ ᴘᴇʀꜱɪꜱᴛᴇɴᴛ ꜰᴇᴇʟɪɴɢ ᴏꜰ ʙᴇɪɴɢ ᴏᴜᴛ ᴏꜰ ᴘʟᴀᴄᴇ, ꜱɪᴍɪʟᴀʀ ᴛᴏ ꜰᴇᴇʟɪɴɢ ʟɪᴋᴇ ᴀ ᴍɪꜱꜰɪᴛ ɪɴ ᴀ ᴘᴀʀᴛɪᴄᴜʟᴀʀ ᴇɴᴠɪʀᴏɴᴍᴇɴᴛ.
 
   <p align="center">
 While you're here, send me a gimmick!
@@ -76,6 +76,8 @@ I don't have a problem with selfshipping in general, just those specific selfshi
 
 <p align="center">
 I'm not sure if I kin any characters, so please don't ask. You're allowed to tell me that you think I act as a certain character, however.
+<p align="center">
+I really like adding Norse runes in the Elder Futhark script on things, specifically online. So feel free to decode the ones you find as they do mean something and isn't just gibberish.
 
 <p align="center">
     <img width="400" src="https://media1.tenor.com/m/CULpgFDPaKkAAAAd/loki.gif" alt="gif1">
