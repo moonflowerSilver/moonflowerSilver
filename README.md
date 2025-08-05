@@ -14,11 +14,14 @@ She/Him (He pref)
 <p align="center">
 In case you wish to friend me on Marvel Rivals, my username is 78_X
 
+
+<p align="center">
+$\Huge\color{#32cd32}{\textsf{ᛃᚷᚷᛞᚱᚨᛋᛁᛚ}}$
+
 </p>
 
 <p align="center">
-    <img width="140" src="https://komarev.com/ghpvc/?username=moonflowerSilver&color=32cd32" alt="views count">
-</p>
+<!-- <img width="140" src="https://komarev.com/ghpvc/?username=moonflowerSilver&color=32cd32" alt="views count">-->
 
 </p>
 
