@@ -42,6 +42,9 @@ $\Huge\color{#32cd32}{\textsf{ᛃᚷᚷᛞᚱᚨᛋᛁᛚ}}$
 You're probably here because you saw me in PonyTown and in that case, here's some information about me you wouldn't find on my strawpage.
 I may seem dry at first but that's because it takes a bit of time for me to warm up to you, if I don't answer you, you can whisper me! I'm most likely offtab, doing something or on rivals in that case.
 
+<p align="center">
+I sometimes call people dear and darling so if you're uncomfortable with it, please tell me.
+
 $\small{\textsf{ }}$
 
 
