@@ -5,7 +5,7 @@
 
 
 <p align="center">
-Atlas, Sylvie, 78_X / 78, Indigo
+Atlas, Loki, Sylvie, 78_X / 78, Indigo
 
 <p align="center">
 She/Him (He pref)
