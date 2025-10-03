@@ -82,7 +82,7 @@ I don't have a problem with selfshipping in general, just those specific selfshi
 ———————————————————————————————————————————————
 
 <p align="center">
-I'm not sure if I kin any characters, so please don't ask. You're allowed to tell me that you think I act as a certain character, however.
+I kin Loki but you're allowed to tell me that you think I act as other certain characters, however.
 <p align="center">
 I really like adding Norse runes in the Elder Futhark script on things, specifically online. So feel free to decode the ones you find as they do mean something and isn't just gibberish.
 
