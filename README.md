@@ -5,7 +5,7 @@
 
 
 <p align="center">
-Atlas, Loki, Sylvie, 78_X / 78
+Atlas, Loki, 78_X / 78
 (Loki is preferred, along with Atlas, but Loki is higher up on the list.)
 
 <p align="center">
