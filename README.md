@@ -18,7 +18,7 @@ $\color{#32cd32}{\textsf{She/Him (He pref)}}$
 In case you wish to friend me on Marvel Rivals, my username is 78_X
  
 <p align="center">
-———————————————————————————————————————————————————————————————
+————————————————————————————————————————————————————————————
 
 <p align="center">
 I'm quite suspicious and distrustful of people and expect to be betrayed by anybody and everyone. My suspiciouns and distrustfulness is not due to you doing anything wrong, it's merely a trauma response. I can and will lie to you if it appeals to my interests or goals or if I just don't like you. I sometimes switch between grammar and casual texting randomly, this does not mean I'm angry at you or anything along those lines, I just like being dramatic.
