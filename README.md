@@ -4,7 +4,8 @@
 
 <!--![67f06c12bc056f52375c4399ae75a8cb](https://github.com/user-attachments/assets/25cdea69-fc54-4fd7-9680-aa61b6efc7ce)-->
 <p align="center">
-<img width="70" src=https://cdn.discordapp.com/attachments/1297858320702636103/1421630952647557232/323234ergytrehtrhdfhert_4576532134235ewqr.png?ex=691da1bf&is=691c503f&hm=1a9b43b6322e9e89cb7e70704a301b8e0270534ee70a0f0b0f7ab5e6b9e00a69&>
+<img width="70" src="https://github.com/user-attachments/assets/f7b4119d-b5e8-4ffb-9271-20c2a1550dda" />
+
 
 
 <p align="center">
