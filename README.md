@@ -36,12 +36,13 @@ If your name is Scara, Alex, Koni, Levan or Mylo, please interact with caution. 
 $\color{#32cd32}{\textsf{ᛁ ᚹᛁᛚᛚ ᚠᛁᚷᚺᛏ ᚠᛟᚱ ᛃᛟᚢ ᚾᛟ ᛗᚨᛏᛏᛖᚱ ᚺᛟᚹ ᛁ ᚨᛗ ᛞᛖᛋᛈᛁᛋᛖᛞ}}$
 
 <p align="center">
-<img src=https://cdn.discordapp.com/attachments/1297858320702636103/1440394033104027843/8304ed3232d70d12034d8dd1de6724bae1af.gif?ex=691dfefa&is=691cad7a&hm=72e0b9f700e24ee4665fbe24d9e65b6d39a04df98e102bd7301f70f6f946332e&>
+<img src=https://github.com/user-attachments/assets/49193c79-3ce9-4587-a375-92151f4a755c>
 
 <!--<p align="center">
 $\color{#32cd32}{\textsf{ᛃᚷᚷᛞᚱᚨᛋᛁᛚ}}$-->
 
 </p>
+
 
 </p>
 
@@ -76,7 +77,7 @@ $\small{\textsf{ }}$
 ———————————————————————————————————————————————————————————————
 
        𝐌𝐨𝐧𝐚𝐜𝐡𝐨𝐩𝐬𝐢𝐬 | ᴛʜᴇ ᴘᴇʀꜱɪꜱᴛᴇɴᴛ ꜰᴇᴇʟɪɴɢ ᴏꜰ ʙᴇɪɴɢ ᴏᴜᴛ ᴏꜰ ᴘʟᴀᴄᴇ, ꜱɪᴍɪʟᴀʀ ᴛᴏ ꜰᴇᴇʟɪɴɢ ʟɪᴋᴇ ᴀ ᴍɪꜱꜰɪᴛ ɪɴ ᴀ ᴘᴀʀᴛɪᴄᴜʟᴀʀ ᴇɴᴠɪʀᴏɴᴍᴇɴᴛ.
-      
+     
 
 
   <p align="center">
@@ -92,7 +93,7 @@ https://moonflowersilver.atabook.org/
 $\tiny\textcolor{gray}{\textsf{ᚦᛖᚱᛖᛋ ᚾᛟ ᛋᚨᚲᚱᛁᚠᛁᚲᛖ ᚦᚨᛏ ᛁ ᚹᛟᚾᛏ ᛗᚨᚲᛖ}}$
 
 <p align="center">
-<img src=https://cdn.discordapp.com/attachments/1297858320702636103/1440400730447151317/983d6e8fedab772ec59ed4adcef7fcde.png?ex=691e0537&is=691cb3b7&hm=ed23fb3f8280db455d3c7de45baddf790a6dffacb63b7158a632a96094995891&>
+<img src=https://github.com/user-attachments/assets/35f28939-dea9-4258-8e74-01ae51a0bc05>
 
 <!--![6bb6a66f366acb764f56c2a7cbdef808](https://github.com/user-attachments/assets/3f6df867-7bda-4749-ae69-b22990a25e9a)-->
 
@@ -110,7 +111,7 @@ If you're a selfshipper that treats cosplayers like they're the actual character
 I don't have a problem with selfshipping in general, just those specific selfshippers. If you selfship yourself with Loki, interact with caution as I can get uncomfortable.
 
 <p align="center">
-<img src=https://cdn.discordapp.com/attachments/1297858320702636103/1440400729834655916/image02.png?ex=691e0537&is=691cb3b7&hm=0af2fd0fa7815b3ec28a00d948f31b0e51878d9f69e54d83bcc40936b409fc9d&>
+<img src="https://github.com/user-attachments/assets/782c218a-9a13-46b4-9565-4695e3e3526c" />
 
 <p align="center">
 ———————————————————————————————————————————————
