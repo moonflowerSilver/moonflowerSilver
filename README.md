@@ -9,7 +9,7 @@
 
 
 <p align="center">
-Loki, Atlas, 78_X / 78
+Loki, Thomas, Atlas, 78_X / 78
 (Loki is preferred)
 
 <p align="center">
