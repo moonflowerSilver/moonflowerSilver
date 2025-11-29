@@ -9,8 +9,8 @@
 
 
 <p align="center">
-Loki, Thomas, Atlas, 78_X / 78
-(Loki is preferred)
+Loki, Nyx, 78_X / 78
+(Loki anb Nyx are preferred)
 
 <p align="center">
 $\color{#32cd32}{\textsf{She/Him (He pref)}}$
