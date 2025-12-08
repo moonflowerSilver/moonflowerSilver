@@ -22,6 +22,9 @@ In case you wish to friend me on Marvel Rivals, my username is 78_X
  I do have Discord but I do not give it out to random people so if you wish to friend me on there, I'll have to know you for more than just an hour. My friend requests and DMs are off for my own safety (Discord only), so I'll initiate adding you on Discord once I'm comfortable.
 
 <p align="center">
+ If you're on my Github because of someone's name in PonyTown, I did not copy anybody. They're just pissy because we got into an argument.
+
+<p align="center">
  <img width="70" height="85" alt="2095e6d435a2884929ebd7f9f660bdf126" src="https://github.com/user-attachments/assets/3a7a8c0e-4561-455a-92d0-1f9d3d123999" />
  
 <p align="center">
