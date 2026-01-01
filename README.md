@@ -89,11 +89,19 @@ $\small{\textsf{ }}$
   <p align="center">
 While you're here, send me a gimmick or sign my ata!
 
-  <p align="center">
-https://moonflowersilver.straw.page
- 
- <p align="center">
-https://moonflowersilver.atabook.org/
+<br />
+<br />
+
+
+ㅤ[StrawPage](https://moonflowersilver.straw.page)
+${\textsf{\color{#32cd32}ㅤㅤ🐍ㅤㅤ}}$
+[Atabook](https://moonflowersilver.atabook.org/)
+${\textsf{\color{#32cd32}ㅤㅤ🐍ㅤㅤ}}$
+[Lovemail](https://ikollovemail.straw.page/)
+${\textsf{\color{#32cd32}ㅤㅤ🐍ㅤㅤ}}$
+
+<br />
+<br />
 
   <p align="center">
 $\tiny\textcolor{gray}{\textsf{ᚦᛖᚱᛖᛋ ᚾᛟ ᛋᚨᚲᚱᛁᚠᛁᚲᛖ ᚦᚨᛏ ᛁ ᚹᛟᚾᛏ ᛗᚨᚲᛖ}}$
