@@ -83,28 +83,23 @@ $\small{\textsf{ }}$
 ———————————————————————————————————————————————————————————————
 
        𝐌𝐨𝐧𝐚𝐜𝐡𝐨𝐩𝐬𝐢𝐬 | ᴛʜᴇ ᴘᴇʀꜱɪꜱᴛᴇɴᴛ ꜰᴇᴇʟɪɴɢ ᴏꜰ ʙᴇɪɴɢ ᴏᴜᴛ ᴏꜰ ᴘʟᴀᴄᴇ, ꜱɪᴍɪʟᴀʀ ᴛᴏ ꜰᴇᴇʟɪɴɢ ʟɪᴋᴇ ᴀ ᴍɪꜱꜰɪᴛ ɪɴ ᴀ ᴘᴀʀᴛɪᴄᴜʟᴀʀ ᴇɴᴠɪʀᴏɴᴍᴇɴᴛ.
-     
-
-
-  <p align="center">
+    
+ <div align="center">  
 While you're here, send me a gimmick or sign my ata!
 
 <br />
 <br />
 
-
-ㅤ[StrawPage](https://moonflowersilver.straw.page)
+${\textsf{\color{#ffe169}ㅤㅤ🗡ㅤㅤ}}$
+[StrawPage](https://moonflowersilver.straw.page)
 ${\textsf{\color{#32cd32}ㅤㅤ🐍ㅤㅤ}}$
 [Atabook](https://moonflowersilver.atabook.org/)
 ${\textsf{\color{#32cd32}ㅤㅤ🐍ㅤㅤ}}$
 [Lovemail](https://ikollovemail.straw.page/)
-${\textsf{\color{#32cd32}ㅤㅤ🐍ㅤㅤ}}$
+${\textsf{\color{#ffe169}ㅤㅤ🗡ㅤㅤ}}$
 
-<br />
-<br />
-
-  <p align="center">
-$\tiny\textcolor{gray}{\textsf{ᚦᛖᚱᛖᛋ ᚾᛟ ᛋᚨᚲᚱᛁᚠᛁᚲᛖ ᚦᚨᛏ ᛁ ᚹᛟᚾᛏ ᛗᚨᚲᛖ}}$
+<p align="center"> 
+  $\tiny\textcolor{gray}{\textsf{ᚦᛖᚱᛖᛋ ᚾᛟ ᛋᚨᚲᚱᛁᚠᛁᚲᛖ ᚦᚨᛏ ᛁ ᚹᛟᚾᛏ ᛗᚨᚲᛖ}}$
 
 <p align="center">
 <img src=https://github.com/user-attachments/assets/35f28939-dea9-4258-8e74-01ae51a0bc05>
