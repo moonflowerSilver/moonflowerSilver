@@ -18,7 +18,7 @@ Loki, Nyx, 78_X / 78
 $\color{#32cd32}{\textsf{She/Him (He pref)}}$
 
 <p align="center">
-In case you wish to friend me on Marvel Rivals, my username is 78_X
+In case you wish to friend me on Marvel Rivals, my username is .ikol (Originally 78_X)
 
 <p align="center">
  I do have Discord but I do not give it out to random people so if you wish to friend me on there, I'll have to know you for more than just an hour. My friend requests and DMs are off for my own safety (Discord only), so I'll initiate adding you on Discord once I'm comfortable.
