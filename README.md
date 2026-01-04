@@ -123,7 +123,7 @@ I don't have a problem with selfshipping in general, just those specific selfshi
 ———————————————————————————————————————————————
 
 <p align="center">
-I kin Loki but you're allowed to tell me that you think I act as other certain characters, however. Due to this, I view comments and such made about Loki as comments made about me and sometimes refer to Loki as me and call myself the God of Mischief. I do not have anything against doubles, but please do not interact unless we are already friends.
+I kin Loki but you're allowed to tell me that you think I act as other certain characters, however. Due to this, I view comments and such made about Loki as comments made about me and sometimes refer to Loki as me and call myself the God of Mischief. I do not have anything against doubles, but please do not interact if you're a double unless we are already friends.
 
 $\small{\textsf{ }}$
  
