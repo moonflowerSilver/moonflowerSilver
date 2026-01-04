@@ -24,9 +24,6 @@ In case you wish to friend me on Marvel Rivals, my username is .ikol (Originally
  I do have Discord but I do not give it out to random people so if you wish to friend me on there, I'll have to know you for more than just an hour. My friend requests and DMs are off for my own safety (Discord only), so I'll initiate adding you on Discord once I'm comfortable.
 
 <p align="center">
- If you're on my Github because of someone's name in PonyTown, I did not copy anybody. They're just pissy because we got into an argument and they think they own a tinting style and colours that everyone uses.
-
-<p align="center">
  <img width="70" height="85" alt="2095e6d435a2884929ebd7f9f660bdf126" src="https://github.com/user-attachments/assets/3a7a8c0e-4561-455a-92d0-1f9d3d123999" />
  
 <p align="center">
@@ -126,7 +123,7 @@ I don't have a problem with selfshipping in general, just those specific selfshi
 ———————————————————————————————————————————————
 
 <p align="center">
-I kin Loki but you're allowed to tell me that you think I act as other certain characters, however. Due to this, I view comments and such made about Loki as comments made about me and sometimes refer to Loki as me and call myself the God of Mischief. I do not have anything against doubles, but I do enjoy being the only Loki in someone's friend list so if you're friends with any of my friends and a double, interact with caution.
+I kin Loki but you're allowed to tell me that you think I act as other certain characters, however. Due to this, I view comments and such made about Loki as comments made about me and sometimes refer to Loki as me and call myself the God of Mischief. I do not have anything against doubles, but please do not interact unless we are already friends.
 
 $\small{\textsf{ }}$
  
