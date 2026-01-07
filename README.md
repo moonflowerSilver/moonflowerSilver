@@ -7,8 +7,6 @@
  <div align="center">
    
 <img width="140" src="https://komarev.com/ghpvc/?username=moonflowerSilver&label=Nexus+Beings&color=0a0901">
-
-
   
 ʀᴇᴀᴅ ᴍʏ [ᴘᴀᴛʀᴇᴏɴ](https://www.patreon.com/posts/intro-byi-147476869) ʙᴇꜰᴏʀᴇ ʏᴏᴜ ɪɴᴛᴇʀᴀᴄᴛ.
 
