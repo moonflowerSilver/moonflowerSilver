@@ -4,10 +4,11 @@
 <p align="center">
   $\color{#b11213}{\textsf{𝐑𝐮𝐧 𝐚𝐰𝐚𝐲 𝐛𝐮𝐭 𝐭𝐡𝐞𝐫𝐞 𝐰𝐢𝐥𝐥 𝐛𝐞 𝐛𝐥𝐨𝐨𝐝 𝐭𝐨 𝐠𝐨 𝐚𝐫𝐨𝐮𝐧𝐝.}}$
 
-<p align="center">
+ <div align="center">
+   
 <img width="140" src="https://komarev.com/ghpvc/?username=moonflowerSilver&label=Nexus+Beings&color=0a0901">
 
- <div align="center">
+
   
 ʀᴇᴀᴅ ᴍʏ [ᴘᴀᴛʀᴇᴏɴ](https://www.patreon.com/posts/intro-byi-147476869) ʙᴇꜰᴏʀᴇ ʏᴏᴜ ɪɴᴛᴇʀᴀᴄᴛ.
 
